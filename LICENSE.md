@@ -1,4 +1,4 @@
-# 
+# updated Excel for macOS Script | real-time-collaboration + automated-reports offers the most advanced Excel for macOS script, with real-time-collaboration and automated-reports.
 
 
 
